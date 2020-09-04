@@ -1,1 +1,1 @@
-My personal programming blog
+Min investeringsblog
